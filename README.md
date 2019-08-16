@@ -1,1 +1,3 @@
-# Darkv1.8
+# DarkMOD
+
+Gunakan dengan Bijak
